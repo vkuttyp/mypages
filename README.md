@@ -1,1 +1,3 @@
 # mypages
+
+MY COMMON LICENSE PAGES...
